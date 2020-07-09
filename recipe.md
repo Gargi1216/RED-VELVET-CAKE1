@@ -1,0 +1,8 @@
+Step-by-Step Recipe:
+1- Preheat oven to 180 degree celsius. Grease two 8-inch cake pans that are at least 2-inches highand line the bottom of the pan with a round piece of parchment paper.
+2- In a medium bowl, sift together flour, cornstarch, cocoa powder, baking soda and salt. set aside.
+3- In a standing mixer, beat together butter and sugar on mediumspeed until lightand fluffy, 3-4 minutes. Beat in oil. Add eggs, one at a time, mixing well between each addition. Add vanilla and vinegar until combined. Add red food colouring, until desired color is reached. With the mixer on low speed, add half of the dry ingredients and beat just until combined. Add buttermilk, followed by the rest of dry ingredients.
+4- Divide batter evenly between pans. Bake for 30 mins. Allow cakes to cool in the pan on a wire rack until they're easy to handle, then remove from pan and allow to cool completely.
+5- In the bowl of an electric mixer, beat butter and cream cheese on medium-high speed until smooth and creamy. Add sugar in two additions, beating well after each addition. Add vanilla and salt and keep beating until smooth and fluffy.
+6- Set one layer on a plate with flat side facing up. Evenly spread a thick layer of the frosting over the cake to the edge. Top with the second cake layer, rounded side up. Spread the remaining frosting over the top and sides of the cake.
+7- Store cake in an airtight container in the fridge for up to 5 days. Take it out of the fridge 15-20 minutes before serving so that it's soft.
